@@ -1,2 +1,2 @@
 # pinitikcircles-andbars
- history of my osu!mania circle skin
+ history of my osu!mania skins
